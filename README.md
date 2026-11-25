@@ -1,1 +1,1 @@
-Legal pages for ahmed clipper (Terms + Privacy).
+﻿Legal pages for ahmed clipper.
